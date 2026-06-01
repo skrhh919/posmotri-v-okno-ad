@@ -1,1 +1,1 @@
-https://github.com/skrhh919/slozhno-sosredotochitsya-ad
+https://github.com/skrhh919/posmotri-v-okno-ad
